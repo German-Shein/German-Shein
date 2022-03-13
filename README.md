@@ -1,0 +1,4 @@
+- 👋 Hi, I am @German-Shein, a Full Stack Web Application Developer!
+- 👀 I’m interested in a lot of things, so for now refer to what I am currently learning! Tech-wise, I mostly like development and as such my interests are Node.js and React.js.
+- 🌱 I’m currently learning Angular, Graphic Design and UX Design
+- 📫 You can reach me here or on LinkedIn: https://www.linkedin.com/in/german-shein-1a2650140/
