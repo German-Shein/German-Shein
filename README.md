@@ -14,6 +14,6 @@ My professional focus is to help clients develop their ideas in a unique, vivid 
 - Retail 🛒🛍 
 - Human Rights 🕊
 
-You can reach me:
-- Via [LinkedIn](https://www.linkedin.com/in/german-shein-1a2650140/)
-- Via [Instagram](https://www.instagram.com/germansheinportfolio/)
+You can reach me via:
+- [LinkedIn](https://www.linkedin.com/in/german-shein-1a2650140/)
+- [Instagram](https://www.instagram.com/germansheinportfolio/)
